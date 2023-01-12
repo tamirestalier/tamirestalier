@@ -1,8 +1,6 @@
 Olá sou Tamires!😊
 
-❤️ Estudante: HTML,CSS,JavaScript (front-end)✌ 
-
- 👊 ela/dela 👊
+❤️ Estudante
  
 
 <div>
