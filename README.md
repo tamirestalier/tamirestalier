@@ -1,6 +1,6 @@
 Olá sou Tamires!😊
 
-❤️ Estudante
+❤️ Você tem sabedoria ou conhecimento?❤️  
  
 
 <div>
