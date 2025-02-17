@@ -1,6 +1,10 @@
-Olá sou Tamires!😊
+# Olá, sou Tamires! 😊
 
-❤️ Você tem sabedoria ou conhecimento?❤️  
+🎓 2° Semestre em Desenvolvimento de Software Multiplataforma (Fatec-Jaú)  
+💡 Apaixonada por tecnologia e inovação  
+🚀 Explorando o mundo do desenvolvimento de software  
+
+🔗 [Meu LinkedIn]([https://www.linkedin.com/in/seu-perfil](https://www.linkedin.com/in/tamires-talier-de-oliveira-73b050203/))  
  
 
 <div>
