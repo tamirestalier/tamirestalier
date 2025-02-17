@@ -2,9 +2,7 @@
 
 🎓 2° Semestre em Desenvolvimento de Software Multiplataforma (Fatec-Jaú)  
 💡 Apaixonada por tecnologia e inovação  
-🚀 Explorando o mundo do desenvolvimento de software  
-
-🔗 [Meu LinkedIn]([https://www.linkedin.com/in/seu-perfil](https://www.linkedin.com/in/tamires-talier-de-oliveira-73b050203/))  
+🚀 Explorando o mundo do desenvolvimento de software 
  
 
 <div>
